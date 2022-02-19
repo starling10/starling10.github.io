@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+This site is all the fantasy stories I have written.
 
-Maybe say a some things about yourself.
+I  LIKE TO DRAW AND WRITE!!!! Once, i wrote a book on my life
 
-Or maybe what you plan to blog about.
+You will see some funny stories!
